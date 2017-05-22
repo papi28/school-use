@@ -1,2 +1,3 @@
 # school-use
-for school use only
+for school use only 
+wasak ang edsa
