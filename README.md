@@ -1,2 +1,3 @@
 # school-use
-for school use only
+this is fucking shit wala pa tayong thesis
+may nabago ba?
